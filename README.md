@@ -11,7 +11,7 @@ head and it sucks sometimes.   Doing good for others while causing pain to your 
 
 I do not open up to people as it’s hard to find someone that genuinely cares to listen. I only said a couple of things that I was holding back because I didn’t want you to be mad.  If I said something I do apologize.  If you are mad cuz you opened up to me and that never happened don’t be as you opened up cuz you trust me to a level.  I know u don’t care if I tell the world what you told me but I won’t tell a soul as you put your trust in me.  
 
-Trust me i dont tell a lot of people about my background. i been taken care of my own flstuff from day one and was put out of the house at the age of 18.  so i never really felt the support. but anyways
+Trust me i dont tell a lot of people about my background. i been taken care of my own stuff from day one and was put out of the house at the age of 18.  so i never really felt the support. i dont even know my purpose on this earth lol but anyways
 
 I see you as a sister I never really had I can’t really talk to people about some issues as many really don’t give a fuck.  People like you and I have a million things run in our mind at any given point and we hate it but can’t stop it.  We try to find good but bad things pop in.  
 
