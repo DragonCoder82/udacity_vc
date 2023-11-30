@@ -15,3 +15,5 @@ I see you as a sister I never really had I can’t really talk to people about s
 I found it very refreshing to talk with someone who was not on their phone the whole time but to someone who put their phone down for hours just to have a conversation.  Not many people nowadays have time to talk but always have time for watching other people on social media.  
 
 Anyways in short I’m trying to say we are both crazy but have good intentions. We carry a lot on our shoulders and are scared too tell others our true feeling as it might make us look weak.  What ever happens after today it is what it is.  But please don’t be mad as it will impact the friendship we have and most importantly impact your health.  But if you ever just want to talk I walk in the evenings and we can always talk then.  And if you don’t want to talk we can all walk too lol. So please let what ever happened pass and take care of your self.  You only need to impress yourself and not others. 
+
+ his sounds stupid but i mean it.  hope it made since as i was doing it quickly
