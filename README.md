@@ -10,10 +10,12 @@ I know you are similar to me you don’t like to show feelings and open up and y
 
 I do not open up to people as it’s hard to find someone that genuinely cares to listen. I only said a couple of things that I was holding back because I didn’t want you to be mad.  If I said something I do apologize.  If you are mad cuz you opened up to me and that never happened don’t be as you opened up cuz you trust me to a level.  I know u don’t care if I tell the world what you told me but I won’t tell a soul as you put your trust in me.  
 
+Trust me i dont tell a lot of people about my background. i been taken care of my own flstuff from day one and was put out of the house at the age of 18.  so i never really felt the support. but anyways
+
 I see you as a sister I never really had I can’t really talk to people about some issues as many really don’t give a fuck.  People like you and I have a million things run in our mind at any given point and we hate it but can’t stop it.  We try to find good but bad things pop in.  
 
 I found it very refreshing to talk with someone who was not on their phone the whole time but to someone who put their phone down for hours just to have a conversation.  Not many people nowadays have time to talk but always have time for watching other people on social media.  
 
 Anyways in short I’m trying to say we are both crazy but have good intentions. We carry a lot on our shoulders and are scared too tell others our true feeling as it might make us look weak.  What ever happens after today it is what it is.  But please don’t be mad as it will impact the friendship we have and most importantly impact your health.  But if you ever just want to talk I walk in the evenings and we can always talk then.  And if you don’t want to talk we can all walk too lol. So please let what ever happened pass and take care of your self.  You only need to impress yourself and not others. 
 
- his sounds stupid but i mean it.  hope it made since as i was doing it quickly
+This sounds stupid but i mean it.  hope it made since as i was doing it quickly
